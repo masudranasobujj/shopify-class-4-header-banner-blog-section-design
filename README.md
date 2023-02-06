@@ -1,0 +1,1 @@
+# shopify-class-4-header-banner-blog-section-design
